@@ -1,2 +1,3 @@
-![image](https://github.com/user-attachments/assets/2d72450d-eea7-4c36-84f2-1dd2da6a8c18)
+![GqxMWVDbEAAS_mr](https://github.com/user-attachments/assets/83ed653c-3e08-4b8a-9ca8-eed896e439ff)
+
 https://fruit-taurs.straw.page
